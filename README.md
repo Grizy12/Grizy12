@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Grizy12
-- 👀 I’m interested in : jsp 
+- 👀 I’m interested in : having fun
 - 🌱 I’m currently learning : La Vie
-- 💞️ I’m looking to collaborate on : jsp 
-- 📫 How to reach me : jsp
+- 💞️ I’m looking to collaborate on : something :p 
+- 📫 How to reach me : 👆👉👇👇👇
 
 <!---
 Grizy12/Grizy12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
